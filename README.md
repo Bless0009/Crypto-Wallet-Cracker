@@ -81,7 +81,6 @@ No, the software is built for Windows 7 and higher, as an option, you can buy a 
  
 All as individual as possible. Sometimes a day absolutely nothing finds, even a few days of silence can be, sometimes in a day finds 5-10 wallets at once.
 
-![Example](https://github.com/cryptokingkong123/Crypto-Wallet-Cracker-Hacker-Stealer-2023/assets/147562147/6faf380a-0ed8-4f5e-b25e-d11d202be23e)
 
 
 
